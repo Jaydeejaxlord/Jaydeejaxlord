@@ -1,3 +1,11 @@
+
+
+
+
+
+
+
+
 - 👋 Hi, I’m @Jaydeejaxlord
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
